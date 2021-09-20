@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Laoryne
 - 👀 I’m interested in a lot of thing like Asia culture and manga :p 
 - 🌱 I’m currently learning marketing
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... idk yet ahah 
 - 📫 How to reach me: @lililise on IG
 
 <!---
